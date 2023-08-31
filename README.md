@@ -1,1 +1,0 @@
-# bewakoof-clone_hosting
